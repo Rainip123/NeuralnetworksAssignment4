@@ -1,3 +1,6 @@
 # NeuralnetworksAssignment4
 
-C:\Users\PRANAY\OneDrive\documents\zoom\2023-07-26 20.45.36 pranay kumar raini's zoom meeting
+
+#700746369  # PranayKumarRaini  #
+
+https://1drv.ms/v/s!AmyRfDuvRUcRjADZLQviPxE0IIWS?e=5acet0
